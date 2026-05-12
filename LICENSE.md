@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with best NFT Trading Bot for blur sniper bot | trait-analysis & floor-price-tracking, the #1 blur sniper bot. Includes trait-analysis and
 
 
 
